@@ -17,3 +17,11 @@ This runs along the jones falls. Can this act as 1. a people connector; and 2. a
 - what other features of informational usefullness could be there: how is the path a substrate to put signs upon; how can it inform, pass useful information on, to users of the path?
 - partnerships with blue water baltimore? waterfront partnership?
 - graham maybe has some ideas?
+
+sidenote: how about the ccfaad class does a big exhibition at the brewery in November/December? sort of a mini "Green Acres" or similar sue spaid style "EcoVention" show??? student works; maybe some curated other works?
+
+- friends of the jone's falls???
+- can we cut the fence down and just connect this stuff together.
+- Bikemore (what DOT guy has overlap) should I connect more with them too?
+
+
