@@ -24,4 +24,9 @@ sidenote: how about the ccfaad class does a big exhibition at the brewery in Nov
 - can we cut the fence down and just connect this stuff together.
 - Bikemore (what DOT guy has overlap) should I connect more with them too?
 
+---
+
+It is really wide! Oh! use the apple measure app to get a rough idea?
+
+So, what to do with the old asphalt? can it be used to create a sort of "terrace"? is it safe to do that to help control, slow the water and collect "pools" to have mini-wetlands all over the place?
 

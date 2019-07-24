@@ -29,7 +29,7 @@ Our climate is rapidly changing due to the effects of human industry. Climate ch
 - I Heart Huckabees
 - What is entropy?
 - If everything is connected, then why is shit so fucked up?
-- What are we going to do?
+- What are we going to do? (overview of solutions/ideas???)
 - How is entropy connected w/ carbon cycle? how is spaceship earth a closed system? how does that affect our understanding of our practices?
 - What else can we think about look at?
 - green peace; extinction rebellion; (started a list in my office) make a long list of different groups; radical or otherwise. (I can go back and check in my _American environmentatlism_ book? -- but what about other orgs from other countries; asian? African? let us expand this list of doers)
