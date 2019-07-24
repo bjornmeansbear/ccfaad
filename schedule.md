@@ -32,6 +32,7 @@ Our climate is rapidly changing due to the effects of human industry. Climate ch
 - What are we going to do?
 - How is entropy connected w/ carbon cycle? how is spaceship earth a closed system? how does that affect our understanding of our practices?
 - What else can we think about look at?
+- green peace; extinction rebellion; (started a list in my office) make a long list of different groups; radical or otherwise. (I can go back and check in my _American environmentatlism_ book? -- but what about other orgs from other countries; asian? African? let us expand this list of doers)
 
 ## Wk4.
 - what is a material ecology? (what is your material ecology? what ecology does your practice function in/create?)
