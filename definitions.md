@@ -9,3 +9,6 @@
 ## Food
 ## System
 ## Entropy
+## Carbon Capture
+## Circular Economy
+## Mindfulness
