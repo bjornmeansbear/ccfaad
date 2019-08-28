@@ -54,12 +54,11 @@ Feel free to e-mail me to let me know if you will be absent, late or would like 
 - Two early departures equal one absence.
 - Remember – leaving early for holidays is not acceptable – tell your parents
 
+General Absence rundown:
+
 - 1 absence - not good.
-
 - 2 absences - bad. I report to Student Affairs
-
 - 3 absences - really bad. I will drop your grade by at least full letter grade.
-
 - 4 absences - the college states that this equals an automatic failure.
 
 Students are expected to stay the full length of class unless I excuse you early. Class starts at 8:30am and ends at 2pm. Do not try to leave class before it ends without asking my permission, as I will notice and it will affect my decision for grading you. Class begins promptly; excessive tardiness will negatively affect you as you will miss important information and demonstrations. However, arriving late is better than missing a class. It is your responsibility to find out what you have missed by asking a fellow student or me directly.
@@ -86,7 +85,7 @@ Don't come to class. Don't complete the projects to the best of your ability. Di
 
 ## Complaints
 
-Students are encouraged to discuss complaints & concerns regarding class, projects or grades with me first. Issues that students do not find to be resolved should then be reported to the Department Chair (Rex).
+Students are encouraged to discuss complaints & concerns regarding class, projects or grades with me first. Issues that students do not find to be resolved should then be reported to the Department Chair (Rex Stevens, rstevens@mica.edu).
 
 ## Costs, Texts, etc.
 
