@@ -190,6 +190,7 @@ Canvas will have up to date information on the schedule, homework, readings, etc
 
 - Carbon Cycle
 - If everything is connected why are things so messed up.
+- Read: <https://aeon.co/essays/art-is-a-waste-of-time-or-so-effective-altruism-claims>
 
 ### Wk4.
 
@@ -203,6 +204,7 @@ Canvas will have up to date information on the schedule, homework, readings, etc
 
 - P3: Carbon Capture/Sequestration Project
 - working with Nasa/Hopkins climate & carbon scientists
+- Read: <https://aeon.co/essays/enter-the-sapiezoic-a-new-aeon-of-self-aware-global-change>
 
 ### Wk7.
 
