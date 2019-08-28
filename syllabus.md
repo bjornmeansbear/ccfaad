@@ -162,10 +162,12 @@ Canvas will have up to date information on the schedule, homework, readings, etc
 
 - Homework:
 
+  - All of these will be on Canvas.
   - pick the behavior you want to change / Project 1: Behavior Change
   - questions from _Teaching as subversive activity?_
-
-    - Read: What is Sustainability from the Post Carbon Reader
+  - Read: What is Sustainability from the Post Carbon Reader
+  - Read/Skim: [IPCC summary](https://www.ipcc.ch/sr15/chapter/spm/)
+  - Read/Skim: [USA Fourth National Climate Assessment Summary Findings](https://nca2018.globalchange.gov/)
 
 ### Wk2.
 
