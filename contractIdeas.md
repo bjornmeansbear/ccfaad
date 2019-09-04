@@ -1,3 +1,88 @@
+# Classroom Contract
+
+1. Respect over all.
+    - people
+    - voices
+    - space
+        - physical space
+        - air space
+        - sonic space
+    - time
+
+2. Honesty.
+Say what you mean (but don't say it meanly)
+
+3. Judgement and Discrimination free.
+
+4. Gentle Rise
+- the class does start that extra half an hour early; is there any way to help each other energize?
+- Use initial part of class to bring up relevant info and catch up with one another?
+- We are here to be in class; so the idea of a "slow start" or "gentle rise" does not mean that time is wasted. You must be ready for class at 830.
+
+5. Normal Issues.
+- Sleepy/Lose Focus
+    - how to help keep each other energized?
+    - take breaks 
+    - staying focused might mean different things to different people or have different requirements
+- People at end get less complete/energized/thoughtful feedback
+    - mix up order of crits week to week
+    - point out to each other that energy or quality of feedback is falling
+    - allow for pushing some things to next class and using classtime differently some days to keep mental exhaustion under control
+
+6. Critique.
+- Honesty.
+    - Say what you mean (but don't say it meanly)
+    - we want to be able to be honest about and with our own work too...
+- No "I like" statements. Talk about what you see in clear, constructive ways.
+- Questioning Process
+    - (I don't recall what this was supposed to mean?)
+- Different ways of communicating
+    - written
+    - spoken
+    - small groups
+    - everyone together
+    - ??
+- Justification/Explanation of feeback
+- What does development look like?
+    - we need project/professorial clarity on what "done" means and what "progress" means week to week.
+- What to do next?
+- Maximize perspectives (@ least in the small groups make sure each person is from a different discipline when possible; don't meat with same groups back to back)
+- first and second weeks are checkins in small groups. then a work week and talk with professor; then final delivery
+- Try to use time equally
+    - but if a conversation is done; move onto the next thing or take a good break.
+- Acknowledge priviledge/bias in your work(s) re: content/context
+- Ask questions for clarification (don't assume or stereotype, etc.)
+    - we don't all have the same contexts
+- Approach each other as human beings
+- Critique others the way you want to be critiqued
+- Abandon Scorn / Make case for change
+- Make an Argument
+    - do not assume your position is/should be self evident. How can we carefully make our arguments and explain ourselves (both as work maker and work viewer)
+- Stay Calm.
+    - if excitement/anger/discomfort/conflict rises then we'll pause, come back later with even keels and restart. Create buffers of time/space/other content. 
+    - Never abandon; but come back when parties are calm again
+- Ask Questions
+    - understand where someone else is coming from
+    - let each other know we're hearing each other
+- Don't Assume Bad Intent
+    - try to assume neutral/good intent.
+    - then questions/discussion to try and figure out why an outcome is what it is if the person has good intent...
+    
+
+7. Unacceptable Behaviors
+- generalizing/jumpin to conclusions
+- shouting/yelling
+    - do not shout/yell at each other as part of conversation/dialogue. If you are getting frustrated we need to all take a breath, maybe take a break, and then return to the discussion.
+    - IF the shouting/yelling is an integral part of a performance it is acceptable.
+- Stay off phones/computers
+    - you can look things up at breaks or when/if we decide through class consensus that we need some piece of information
+- Sleeping
+- Talking over People
+- Disruptive food
+- leaving the room in disarray when we leave.
+
+///////////////////////////
+
 Unanimously Communicate amongst ourselves (non-verbal)
 
 Integrated communication: speaking and listening to everyone
