@@ -26,3 +26,4 @@ What is non-negotiable? (in my case it is MICA's attendance policies; what from 
 10. How should we treat each other when there is a conflict?
 11. What do your answers look like -- can you explain them clearly? (like if your answer to how we should treat each other is "act nice", what does acting nice really mean???)?
 12. How malleable are these? how do we add or change them if/when necessary as the term evolves?
+

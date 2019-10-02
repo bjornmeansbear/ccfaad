@@ -2,7 +2,7 @@
 (From _Teaching as a Subversive Activity_)
 
 Reflect on these questions - and others that these can generate. Please do
-not merely react to them. 
+not merely react to them. We will spend a good portion of our time next week going over each of your answers/reflections and seeing where they might lead us the rest of the term.
 
 - What do you worry about most?
 - What are the causes of your worries?
@@ -12,10 +12,8 @@ not merely react to them.
 - If you had an important idea that you wanted to let everyone (in the world) know about, how might you go about letting them know?
 - What bothers you most about adults? Why?
 - How do you want to be similar to or different from adults you know when you become an adult?
-- What, if anything, seems to you to be worth dying for?
-- How did you come to believe this?
-- What seems worth living for?
-- How did you come to believe this?
+- What, if anything, seems to you to be worth dying for? How did you come to believe this?
+- What seems worth living for? How did you come to believe this?
 - At the present moment, what would you most like to be - or be able to do? Why? What would you have to know in order to be able to do it? What would you have to do in order to get to know it?
 - How can you tell 'good guys' from 'bad guys'?
 - How can 'good' be distinguished from 'evil'?
@@ -67,4 +65,3 @@ not merely react to them.
 - What's worth knowing? How do you decide?
 - What are some ways to go about getting to know what's worth knowing?
 
-We will spend a good portion of our time next week going over each of your answers/reflections and seeing where they might lead us the rest of the term.

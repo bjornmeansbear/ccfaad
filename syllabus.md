@@ -229,7 +229,7 @@ Canvas will have up to date information on the schedule, homework, readings, etc
 
 ±±±±±±±±±±±±±±±±±±
 
-Stuff to fit in:
+Other Stuff to fit in:
 
 - Appropriate technologies? Appropriate art? Appropriate practice?
 - Sue Spaid? help here someplace?

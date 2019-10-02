@@ -6,4 +6,4 @@ Based on your understanding of Climate Change & Sustainability so far, pick a be
 - helps others understand the impact;
 - reveals the complications and interrelations between one choice/action and all our other choices and actions ...
 
-Your change can evolve over the term as you attempt to "be the change" you want to see in the world -- you might realize that its too hard; too impossible; whatever, and have to negotiate with yourself to find something still extreme but more doable. Do not wholesale change/abandon your original choice (unless it is proving to be dangerous or un healthy).
+Your change can evolve over the term as you attempt to "be the change" you want to see in the world -- you might realize that its too hard; too impossible; whatever, and have to negotiate with yourself to find something still extreme but more doable. Do not wholesale change/abandon your original choice (unless it is proving to be dangerous or unhealthy).
