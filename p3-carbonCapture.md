@@ -69,3 +69,5 @@ We'll have the luxury of being able to talk to Peter Griffith from NASA about ou
 ## Other Resources
 - Breakthrough institute: https://thebreakthrough.org/
 They offer some similar and some alternative views to those provided by Drawdown and TCM. In figuring out your own opinions and ideas about climate change, it is useful to get a lot of expert input, and often nice to see when there is intellectual conflict to help you discern what you really think might be best. (For example, the Breakthrough institute does not agree with The Climate Mobilizations "Half Earth" idea in regards to wilderness conservation.)
+- UN Sustainable Development Goals: https://sustainabledevelopment.un.org/
+The UN's goals for SD are focused on trying to end eco and social oppression; focus on environmental and social equity -- they can easily be matched w/ drawdown ideas/targets if necessary. They also provide a different much more "improve the life of all people" focus if that appeals more to you.
